@@ -1,4 +1,4 @@
-[未命名设计.pptx](https://github.com/user-attachments/files/32907531/default.pptx)
+<img width="2400" height="3696" alt="二十六史-首页" src="https://github.com/user-attachments/assets/cd8179e0-7794-479c-bd92-f4bfff125fee" />
 ---
 # 资治通鉴与二十六史 文白对照库
 
