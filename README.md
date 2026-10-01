@@ -1,4 +1,5 @@
-![Uploading 二十六史-首页.png…]()
+<img width="2400" height="3696" alt="二十六史-首页" src="https://github.com/user-attachments/assets/f9374c97-3dba-49fe-ae7f-7cd94ace155d" />
+
 
 ---
 
